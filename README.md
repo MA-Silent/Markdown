@@ -1,7 +1,7 @@
 # Dumpling taco's
 
-Bereidings tijd: **30 min**
-Recept voor: *2 personen*
+- Bereidings tijd: **30 min**
+- Recept voor: *2 personen*
 ![alt](https://www.lekkerensimpel.com/wp-content/uploads/2024/06/588A4575.jpg.webp)
 
 ## Benodigheden
